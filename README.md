@@ -1,1 +1,1 @@
-![alt text](https://i.sexru.st/kgmmmbyevpum.png)
+![alt text](https://i.doink.dev/jlp4scnn27.webp)
